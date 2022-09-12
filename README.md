@@ -1,0 +1,2 @@
+- Hi, I'm Goto Akinori.
+- I'm now living in Nagano, Japan.
